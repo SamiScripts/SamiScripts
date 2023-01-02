@@ -1,4 +1,7 @@
-- 👋 Hi, I’m @SamiScripts
-- 👀 I’m interested in roblox scripts!
-- 🌱 I’m currently learning Lua
-- 📫 How to reach me: add me on discord: sxmi#2830
+hello
+
+
+
+
+
+do u smoke that xaxa
